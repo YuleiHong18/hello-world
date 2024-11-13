@@ -1,1 +1,2 @@
 Hello there, I'm Yù Léi Hong! It's nice to meet you!
+I don't know much about programming, but I'm trying my best to learn it! (even if it's not working that well) My interests are gaming (obviously) and music.
